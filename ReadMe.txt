@@ -4,5 +4,5 @@ Ademais, possuo habilidades de comunicação e escrita, atenuadores para trabalh
 como também ânsia e facilidade de aprendizado.
 Afora, o inglês intermediário e a curiosidade pelo TI, dando importância ao software e hardware.
 
-Linkedln: https://www.linkedin.com/in/marina-pereira-dos-santos-giacchero-401232212/
+*Linkedln: https://www.linkedin.com/in/marina-pereira-dos-santos-giacchero-401232212/
 
